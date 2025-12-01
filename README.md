@@ -10,5 +10,6 @@ https://alumnosuady-my.sharepoint.com/:w:/g/personal/a25216444_alumnos_uady_mx/I
 ### Definition of Done DoD:
 https://alumnosuady-my.sharepoint.com/:w:/g/personal/a25216444_alumnos_uady_mx/IQBEiywTktPdSZg-sgDBoyUGAf4bzqBbBLMx5V_DTPpsf_o?e=IGofOW
 
-#### Resultados Encuesta de satisfacción:
+#### Resultados Encuesta de satisfacción e interpretación:
 https://docs.google.com/spreadsheets/d/1bwEL25d4_stjij94irX1KRCXqkvBjzeVCuIWgKn40Yo/edit?usp=sharing
+https://alumnosuady-my.sharepoint.com/:w:/g/personal/a25216444_alumnos_uady_mx/IQAn7vxuFoq0TbUT1g7U_mckAeS3NvevEnJMQPaD-E3g0Fc?e=F8wJGz
