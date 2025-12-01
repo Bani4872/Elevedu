@@ -13,3 +13,6 @@ https://alumnosuady-my.sharepoint.com/:w:/g/personal/a25216444_alumnos_uady_mx/I
 #### Resultados Encuesta de satisfacción e interpretación:
 https://docs.google.com/spreadsheets/d/1bwEL25d4_stjij94irX1KRCXqkvBjzeVCuIWgKn40Yo/edit?usp=sharing
 https://alumnosuady-my.sharepoint.com/:w:/g/personal/a25216444_alumnos_uady_mx/IQAn7vxuFoq0TbUT1g7U_mckAeS3NvevEnJMQPaD-E3g0Fc?e=F8wJGz
+
+### Tabla de contribución total:
+https://alumnosuady-my.sharepoint.com/:x:/g/personal/a25216445_alumnos_uady_mx/IQDV0r9Fu-8BSKR6jULh-dBnAYNFNg33CZUQm0ECyg6q7Xw?e=jOeo5u
